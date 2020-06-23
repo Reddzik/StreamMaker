@@ -1,0 +1,1 @@
+Input value is like search engine on Twitch.tv platform
